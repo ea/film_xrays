@@ -100,8 +100,9 @@ but it's certainly convenient.
 Besides the film, you will need a couple of things to develop it. My
 goto black and white developer is Kodak HC-110 which is extremely
 inexpensive, versatile and available everywhere. Fixer is fixer and
-doesn't really matter but my choice is Ilford RapidFix.  ￼ ￼ ##
-Additional equipment
+doesn't really matter but my choice is Ilford RapidFix.  ￼ ￼ 
+
+## Additional equipment
 
 If you have a darkroom, or a particularly dark bathroom or closet, you
 can get away with most of these, but they are handy and allow you to
